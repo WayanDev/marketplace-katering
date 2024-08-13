@@ -25,6 +25,8 @@
 ## Demo
 ![image](https://github.com/user-attachments/assets/6340e56f-632f-4e76-9926-caade12fc328)
 ![image](https://github.com/user-attachments/assets/a0fecbf0-2de5-4d5e-a6d4-34554352dbbf)
+![image](https://github.com/user-attachments/assets/3d01fbfe-c084-4c41-b0a0-e2ea2125f75c)
+
 
 
 **Demo Langsung:** akan segera diperbarui
